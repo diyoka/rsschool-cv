@@ -7,7 +7,8 @@
 * Telegram: +998 (95) 647-77-82
 ---
 #### About myself:
-I'm a positive girl
+
+ I'm a positive girl
 ---
 #### Skills and Proficiency:
 * HTML5 CSS3
